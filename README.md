@@ -1,1 +1,1 @@
-# Growth_Mindset_challenge
+# Growth-Mindset-challenge
